@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mnkadafi
+- 👋 Hello, Folks.
 - 📫 Reach me at mnkadafi98@gmail.com
 
 <!---
